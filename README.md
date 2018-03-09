@@ -1,1 +1,1 @@
-# **Whirl-of-thoughts**
+# **_Whirl of thoughts_**
